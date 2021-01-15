@@ -1,1 +1,0 @@
-this recipe is for  soft, delicious, strong garlic butter baked salmon
